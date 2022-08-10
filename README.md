@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Herbiebot
 - 👀 I’m interested in Customer Engagement, Increasing sales, Branding, Resolving Queries
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently working for wide range of Industries
 - 💞️ I’m looking for Partners
 - 📫 Reach me at sales@herbie.ai
 
